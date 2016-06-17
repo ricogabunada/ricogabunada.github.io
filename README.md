@@ -1,0 +1,1 @@
+﻿RICO GABUNADA - resume :D
