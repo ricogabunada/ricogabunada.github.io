@@ -1,1 +1,1 @@
-﻿RICO GABUNADA - resume :D
+﻿RICO GABUNADA - ORAYT
